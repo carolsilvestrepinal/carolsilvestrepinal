@@ -8,8 +8,8 @@ Desde 2022, sou redatora freelancer no TechTudo, portal de tecnologia da Editora
 
 MTB: 0092429/SP
 **Acompanhe meu trabalho:**
-▪️Página de autora no TechTudo: www.techtudo.com.br/autores/caroline-silvestre
-▪️Portfólio: muckrack.com/caroline-ayala-silvestre | carolinesilvestre.my.canva.site
-▪️Instagram profissional: www.instagram.com/carolinesilvestrejornalista
-▪️Newsletter: mardepalavras.substack.com
+- Página de autora no TechTudo: www.techtudo.com.br/autores/caroline-silvestre
+- Portfólio: muckrack.com/caroline-ayala-silvestre | carolinesilvestre.my.canva.site
+- Instagram profissional: www.instagram.com/carolinesilvestrejornalista
+- Newsletter: mardepalavras.substack.com
 
